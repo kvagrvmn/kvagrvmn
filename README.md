@@ -10,5 +10,6 @@
 
 ![tumblr_ab931f5afefbf181f8b9341d4204c622_aa467c9e_1280](https://github.com/user-attachments/assets/eab42664-d34a-453c-be3a-8f4040fb00a9)
 
-<p align="center"> **˙⋆✮ info about my interests and what i do..** 
-
+<p align="center">⋆✮ info about my interests and what i do..
+˙⋆✮ my main interest is persona 3. 
+˙⋆✮ im always sitting near spawn. 
