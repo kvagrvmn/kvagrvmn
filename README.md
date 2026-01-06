@@ -10,6 +10,10 @@
 
 ![tumblr_ab931f5afefbf181f8b9341d4204c622_aa467c9e_1280](https://github.com/user-attachments/assets/eab42664-d34a-453c-be3a-8f4040fb00a9)
 
-<p align="center">⋆✮ i am makoto.
+
+  
+  <img width="355" height="242" alt="Screenshot 2026-01-06 205954" src="https://github.com/user-attachments/assets/eafcf019-be8d-40ed-b120-d7165a25032b" />
+<img width="605" height="296" alt="Screenshot 2026-01-06 202238" src="https://github.com/user-attachments/assets/0531ceea-d58a-4930-933e-d9600c1dec69" />
+
 <img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/5c57f92c-7056-4b75-b287-70844261b736" />
 
