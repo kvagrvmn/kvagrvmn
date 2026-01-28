@@ -2,5 +2,5 @@
  ★![pony-town-mitsuru kirijo-trot-blinking-padded-4x](https://github.com/user-attachments/assets/b05bad2a-ce9f-4258-80f5-286f5c0c52d4)
  ★![pony-town-TG-trot-blinking-padded-toy349-4x](https://github.com/user-attachments/assets/bd728d73-35a5-4f55-b577-ce34350476f3)
  ★![pony-town-me irl-trot-blinking-padded-toy440-4x](https://github.com/user-attachments/assets/a4ffe377-e1fe-4523-b3bd-bfedf549ace4)
- ★![pony-town-🍭-fly-blinking-padded-4x](https://github.com/user-attachments/assets/26156c37-93c0-4f80-a090-0867537d95ee)
+ ★![pony-town-🍭-fly-blinking-padded-4x (1)](https://github.com/user-attachments/assets/45301ac2-dfc4-4db8-99fe-2ce72443b269)
 
