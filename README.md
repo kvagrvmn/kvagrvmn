@@ -1,4 +1,1 @@
- ★![pony-town-makoto yuki-trot-blinking-padded-4x](https://github.com/user-attachments/assets/4890e0b1-01e9-41e2-8898-c6f643089105)
-
-
-
+ ★![pony-town-makoto yuki-trot-blinking-padded-4x](https://github.com/user-attachments/assets/4890e0b1-01e9-41e2-8898-c6f643089105)                                                          ![dave-strider-homestuck](https://github.com/user-attachments/assets/3a3b4e7e-76bc-4d4d-9b98-df83519f03d8)★
