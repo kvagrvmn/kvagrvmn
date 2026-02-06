@@ -1,6 +1,6 @@
 <p align="center"> ── ⋆⋅☆⋅⋆ ──
 <p align="center">  hello!! im keeva. youll find me sitting at spawn or in the hs area usually with friends.
-<p align="center">  im very chill and talkative once you get to know me!
+<p align="center">  im very talkative once you get to know me!
 <p align="center">  my favourite character oat is makoto yuki. (p3)
 <p align="center">  sorry if i dont reply fast! im usually offtab or not even home.
 <p align="center">  other info in my strawpage! (dni, interests etc.)
