@@ -3,7 +3,7 @@
   <img src="https://64.media.tumblr.com/370806a7b590eb1f645b3c98c94d41ef/cc8c84b14e587245-6b/s100x200/10b9b6b161df8e1602c22e6962326a6ad26b9994.gifv" width="99" height="56">
   <img src="https://64.media.tumblr.com/7169ee8089c80c363a0b3bceacc54d3e/cc8c84b14e587245-fd/s100x200/a5a55c837c31fa10bc18b2bf560d8b0a26163faf.pnj" width="99" height="56">
 <p align="center"> 𓏲 ๋࣭  ࣪ ˖ᅠᅠ9tεεɳ ᅠᅠαɳყ prns ᅠᅠ ᅠ૮ + ɦ ✔︎ᅠᅠ𓏲 ๋࣭  ࣪ ˖
-<p align="center"> <img src="https://hzshjbzhjhjz.carrd.co/assets/images/image09.png?v=9a3e44d2" width="350">
+<p align="center"> <img src="https://hzshjbzhjhjz.carrd.co/assets/images/image09.png?v=9a3e44d2" width="300">
 <p align="center"> 𓏲 ๋࣭  ࣪ ˖ᅠᅠɨռʄօᅠᅠin ɱყᅠᅠstraωραɠeᅠᅠ𓏲 ๋࣭  ࣪ ˖
 <p align="center"> <img src="https://64.media.tumblr.com/ba111bbcb7d47e046e5e6e19d5ee5293/cc8c84b14e587245-e5/s250x400/0d42ec2afa4523f6fcbf042d2cd6235e9827c857.gifv" width="250" height="250">
 <p align="center"> <img src="https://64.media.tumblr.com/e73fc289e778a63f65a3df8ed818fb3e/135af012ac6f711a-f1/s250x400/7a3c72998dfab164cb282ec360692b2f9489ba21.pnj" width="99" height="56">
