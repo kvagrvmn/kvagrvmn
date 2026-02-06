@@ -2,5 +2,5 @@
 <p align="center"> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/94785edf-3ee6-4104-a375-97c60645e329" />
   <img src="https://64.media.tumblr.com/370806a7b590eb1f645b3c98c94d41ef/cc8c84b14e587245-6b/s100x200/10b9b6b161df8e1602c22e6962326a6ad26b9994.gifv" width="99" height="56">
   <img src="https://64.media.tumblr.com/7169ee8089c80c363a0b3bceacc54d3e/cc8c84b14e587245-fd/s100x200/a5a55c837c31fa10bc18b2bf560d8b0a26163faf.pnj" width="99" height="56">
-<p align="center"> 𓏲 ๋࣭  ࣪ ˖ᅠᅠ9teen ᅠᅠany prns ᅠᅠ ᅠc + h ✔︎
-<p align="center"> <img src="https://hzshjbzhjhjz.carrd.co/assets/images/image09.png?v=9a3e44d2" width="700">
+<p align="center"> 𓏲 ๋࣭  ࣪ ˖ᅠᅠ9teen ᅠᅠany prns ᅠᅠ ᅠc + h ✔︎ᅠᅠ𓏲 ๋࣭  ࣪ ˖
+<p align="center"> <img src="https://hzshjbzhjhjz.carrd.co/assets/images/image09.png?v=9a3e44d2" width="500">
